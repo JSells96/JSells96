@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Jessica, aka Jessi.
+- 👀 I’m interested in data science and have completed certification in it.
+- 🌱 I’m currently looking to grow my repos and collaborate in any projects.
+- 👯 I have one project on homelessness I've already worked on with others.
+- 😄 Pronouns -> She / Her
+- 📫 How to reach me -> jay.jessica.e@gmail.com
+- 💬 Reach out to me on LinkedIn
